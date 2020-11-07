@@ -1,1 +1,1 @@
-this new project .. i couldn't continue due to some problem
+this is new project .. i couldn't continue my classes due to some problem.. i will try to cover all the classes soon through all the upload videos.
